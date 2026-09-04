@@ -18,5 +18,7 @@ https://github.com/user-attachments/assets/8b5c3b55-c15c-4200-8d57-0e9974eccada
 
 ## Video Percobaan
 
-Uploading WhatsApp Video 2026-09-02 at 10.29.32.mp4…
+https://github.com/user-attachments/assets/03135094-9747-4cab-bc47-99afcca7541d
+
+
 
